@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FoxyKevinJr
+- 👀 I’m interested in Coding And Art.
+- 🌱 I’m currently learning Coding.
+- 💞️ I’m looking to collaborate on A Friday Night Funkin Mod.
+- 📫 How to reach me Discord is: *Good?* FNF Player#8707
